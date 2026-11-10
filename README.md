@@ -1,0 +1,1 @@
+zdravím tu matej, ten predošlý repozitar už nemám takže začínam s novým :)
